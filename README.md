@@ -1,6 +1,6 @@
 # Best-Laptops-For-College-Students-Under-1000
 Best Laptops For College Students Under 1000-Ultimate List of best students notebooks with great capabilities and affordable price....
-Best laptops for College students under $ 1,000
+<a href="https://github.com/mbakdesy/Best-Laptops-For-College-Students-Under-1000/">Best laptops for College students under $ 1,000</a>
 Competition is getting the technology will certainly be higher, entering 2015 we will not know what kind of laptop like especially to be released by the notebook vendor world. Inevitably if you later one day there will be a notebook that has features beyond the limits of our expectations. Because Smartphone In the field itself has released a Smartphone by ASUS is the first in the world to use 4GB RAM memory that Asus Zenfone 2 and an update of the previous version.
 
 Before ZenFone 2, is the Samsung Note 3 that still use 3GB RAM. Well this is one example of technology is increasingly the goods have higher spec. For it was on this occasion I also want to share a little information about Laptop with High Specification whose price is below 10 Millions.
@@ -49,7 +49,7 @@ Core i5 3210QM 3.1GHz, 8GB DDR3, 750GB + SSD128GB, Bluetooth, Wifi, GTX640M 2GB,
 
 Okay, maybe that's all I can say about the best laptops for college students under $ 1000 on this occasion. Hopefully this article can be useful for us together.
 
-Sources:
+Sources:<br>
 http://rajalaptop.com/student-notebook-under-1000/<br>
 http://rajalaptop.com/student-notebook-under-800/<br>
 http://rajalaptop.com/student-notebook-under-500/<br>
