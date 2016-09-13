@@ -50,7 +50,7 @@ Core i5 3210QM 3.1GHz, 8GB DDR3, 750GB + SSD128GB, Bluetooth, Wifi, GTX640M 2GB,
 Okay, maybe that's all I can say about the best laptops for college students under $ 1000 on this occasion. Hopefully this article can be useful for us together.
 
 Sources:
-http://rajalaptop.com/student-notebook-under-1000/
-http://rajalaptop.com/student-notebook-under-800/
-http://rajalaptop.com/student-notebook-under-500/
-http://rajalaptop.com/student-notebook-under-300/
+http://rajalaptop.com/student-notebook-under-1000/<br>
+http://rajalaptop.com/student-notebook-under-800/<br>
+http://rajalaptop.com/student-notebook-under-500/<br>
+http://rajalaptop.com/student-notebook-under-300/<br>
