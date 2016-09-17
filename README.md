@@ -1,6 +1,5 @@
 # Best-Laptops-For-College-Students-Under-1000
 <a href="https://github.com/mbakdesy/Best-Laptops-For-College-Students-Under-1000/">Best laptops for College students under $ 1000</a>
-How to Choose the Best Laptops for College Students Under 1000
 Best laptops for college students under 1000 can support the learning process and finishing their assignments at college. Being active students surely need the best laptop for doing assignments, having presentation, and even gaming. Laptops under 1000 seem to be the right choice. Thus, how do you choose the best laptop in that price range?
 Choosing Credible Laptop Brand
 Sometimes a brand of laptop requires to be considered when you want to buy laptops under 1000. Laptops from famously credible brands have maintained the quality of its products. Thus, it is better to always concern on the brand. However, you still check and identify the offered quality. It is important to avoid fake laptop product sold in the market.
