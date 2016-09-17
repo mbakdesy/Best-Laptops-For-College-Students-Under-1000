@@ -14,5 +14,5 @@ There are actually some types of laptops for college students under 1000 that ca
 
 Okay, maybe that's all I can say about the best laptops for college students under $ 1000 on this occasion. Hopefully this article can be useful for us together.
 
-Sources:<br>
+Source:<br>
 http://rajalaptop.com/student-notebook-under-1000/
